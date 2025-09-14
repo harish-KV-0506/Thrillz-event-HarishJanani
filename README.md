@@ -1,1 +1,0 @@
-# Thrillz-event-HarishJanani
